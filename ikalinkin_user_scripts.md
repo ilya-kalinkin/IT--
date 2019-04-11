@@ -1,6 +1,9 @@
 Калинкин Илья - “StrangeSand ”
+
 Группа 10 - МИ - 3
+
 Электронная почта: ilia.kalinkin@mail.ru
+
 VK: https://vk.com/hochu_kushats
 
 Сценарий 1 Выстрел
