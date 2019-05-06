@@ -8,6 +8,9 @@ VK: https://vk.com/hochu_kushats
 
 
 
+
+
+
 **Сценарий 1 Выстрел**
 
 
